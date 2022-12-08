@@ -12,7 +12,7 @@
 ***Telegram:*** @GalinaSi22
 
 ## Briefly About Myself
-She worked as a preschool teacher for 9 years. Now I want to learn a new profession in the IT field and achieve success. 
+I am 29 years old. She worked as a preschool teacher for 9 years. Now I want to learn a new profession in the IT field and achieve success. 
 Still newbie in this area. I am currently taking courses from The Polling Scopes community stage 0
 
 ## English
